@@ -1,1 +1,1 @@
-# Tutorial-Projects -- Incompleted
+# Tutorial-Projects -- Incomplete
